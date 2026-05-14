@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with ultimate ftx trading bot Tool | stop-loss + auto-leverage, the #1 ftx trading bot. Includes stop-loss and auto-leverage for a smoother and more
 
 
 
